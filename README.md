@@ -4,4 +4,4 @@ My name is Eduardo Valentin dos Santos and I'm a geologist working my way throug
 ## Get in touch
 - LinkedIn: https://www.linkedin.com/in/eduardo-valentin-geo/
 - ResearchGate: https://www.researchgate.net/profile/Eduardo_Valentin
-- Email: eduardovalentindossantos@gmail.com
+- Email: eduardovalentindossantos@gmail.com / eduardo.valentin-dos-santos.1@ulaval.ca
